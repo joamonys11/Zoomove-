@@ -9,7 +9,8 @@ Mobile Game
 **Downloading **
 https://drive.google.com/drive/folders/0B18EkzwI_l4IfjB3Q1Q4VWtCQV9mb2hXZC1tOU9pSDVJRnV0WGNtWTlyYWgzYk1hSnF3RDA?resourcekey=0--FFrcQ7dH2_vPiGP2UkJIQ&usp=sharing
 
-
+**APK File**
+https://drive.google.com/drive/folders/0B18EkzwI_l4IfjRreFRQTXJTWTZKdFNIWDVwU1RGWUxSaGt4QmlxSXlaQkFaMy1ndlh6VDQ?resourcekey=0-CuUK9QzXG4LyurOibZSwhg&usp=sharing
 
 ## 📱 Platform
 
